@@ -1,2 +1,7 @@
-# hello_world
-this 
+# hello_world.
+teamwork.
+integrity.
+selfcompetition.
+focuss.
+determination.
+hardwork
